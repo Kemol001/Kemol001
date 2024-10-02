@@ -54,4 +54,4 @@ I'm a Software/Devops Engineer and Tester with a passion for buliding amazing so
 ## Contact
 - **Email** karimlialy2001@gmail.com
 - **Phone** +201090854664
-- **LinkedIn:** https://www.linkedin.com/in/karim-lialy-583697223
+- **LinkedIn:** https://www.linkedin.com/in/karim-lialy
